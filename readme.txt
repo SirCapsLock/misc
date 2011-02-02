@@ -1,3 +1,3 @@
 This is a repo dedicated to miscellaneous & random & ubiquitous crap.
 
-Follow me to the ends of the Earth.
+Follow me to the ends of the Earth, if you want to live.
